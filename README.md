@@ -12,4 +12,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: manu_pineda on Instagram, manu.gon.pineda@gmail.com 
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I took people diving with sharks at some point in my life
--->
